@@ -1,1 +1,0 @@
-Hanny Simanjorang
